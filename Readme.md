@@ -3,6 +3,6 @@
 Este é um repositório teste para ensinar como Git funciona.
 Saiba mais no link: [willianjusten.com.br](https://willianjusten.com.br)
 
-Gostou do curso, deseja aprender mais? Ajude com uma doação, até um café é válido :^)
+[TFW no phonk GF](https://www.youtube.com/watch?v=Du5b3yx-_tk)
 
-[Texto inserido apenas para fins de teste, não leve a sério](suicidio.com.br)
+[Damn dem postive squad Boys rly off the vitamines](suicidio.com.br)
